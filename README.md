@@ -11,11 +11,11 @@
 
 - 👯 I’m looking to collaborate on **Data & AI Projects**
 
-- 👨‍💻 All of my projects are available at [https://vijay-a-k-1405.github.io/vijayashokkarlawad/](https://vijaykarlawad.netlify.app)
+- 👨‍💻 All of my projects are available at [Portfolio](https://vijaykarlawad.netlify.app)
 
 - 📫 How to reach me **vijaykarlawad1416@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1kyahbB7BjWDkM3Lz4Uf-F-w916uyZ8tn/view?usp=sharing](https://drive.google.com/file/d/1kyahbB7BjWDkM3Lz4Uf-F-w916uyZ8tn/view?usp=sharing)
+- 📄 Know about my experiences [Any Questions](https://drive.google.com/file/d/1kyahbB7BjWDkM3Lz4Uf-F-w916uyZ8tn/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am Hungry**
 
