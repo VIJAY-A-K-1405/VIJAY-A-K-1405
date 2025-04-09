@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate on **Data & AI Projects**
 
-- 👨‍💻 All of my projects are available at [https://vijay-a-k-1405.github.io/vijayashokkarlawad/](https://vijay-a-k-1405.github.io/vijayashokkarlawad/)
+- 👨‍💻 All of my projects are available at [https://vijay-a-k-1405.github.io/vijayashokkarlawad/](https://vijaykarlawad.netlify.app)
 
 - 📫 How to reach me **vijaykarlawad1416@gmail.com**
 
